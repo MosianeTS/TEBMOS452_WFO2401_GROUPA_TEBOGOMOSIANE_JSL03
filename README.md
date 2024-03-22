@@ -9,6 +9,8 @@ You will present your reasoning for each example, record your presentation using
 
 Example 1 Loom Recording Link: https://www.loom.com/share/e2033ccd42ce4853a3f4b96a5b9a2545
 
+Example 2 Loom Recording Link: https://www.loom.com/share/1ebf99a6991f4461afd2a971933fbd53
+
 
 
 
